@@ -22,4 +22,6 @@ Recientemente se ha descubierto que, en cada especie, existe un individuo conoci
 
 Los Dragones Custodio son criaturas únicas, nacidas del subconsciente de un Fénix. Representan la ilusión y la esperanza de que el camino de la Unión Consciente es posible. Esta fuerza está tan concentrada que, en los humanos, solo existen 506 huevos de Dragones Custodio, y actualmente solo se conoce la ubicación de 33 de ellos. Estos huevos pertenecen a aquellos que conocemos como los Hijos de la Pluma: personas que confían en el Fénix y le ofrecen su apoyo. El poder latente en esas cáscaras es inconmensurable. En manos adecuadas, puede transformar al jinete del futuro dragón en alguien con gran influencia en Névoran.
 
+El camino no será fácil. Usaremos toda nuestra disciplina, constancia y, por qué no, diversión, para transitar juntos los senderos que nos deparan.
+
 Nos vemos en la Plaza de Vuelo.
